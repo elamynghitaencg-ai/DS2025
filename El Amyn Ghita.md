@@ -1,7 +1,9 @@
 # Rapport d'Analyse Approfondie du PIB
 ## Comparaison Internationale Multi-pays (2015-2023)
 
----
+El Amyn Ghita
+![WhatsApp Image 2025-10-30 à 11 31 39_3660fcba](https://github.com/user-attachments/assets/bf083937-79aa-44a6-85a7-926ecd2e59c0)
+
 
 ## 1. Introduction et Contexte
 
